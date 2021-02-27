@@ -1,0 +1,1 @@
+﻿Tiden er g\xF1\x65t

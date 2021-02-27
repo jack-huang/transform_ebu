@@ -1,0 +1,1 @@
+﻿Tiden er gået
